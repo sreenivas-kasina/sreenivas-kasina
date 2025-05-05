@@ -24,7 +24,7 @@
 
 <img src="https://github.com/nirala69/nirala69/blob/master/70804f7e25b11f29db904f2fa7b4cd9d.gif" width="350" align='right'>
 
-<a href="https://www.linkedin.com/in/sreenivas9213/" target="_blank">
+<a href="https://www.linkedin.com/in/sreenivas-k-♾☁️🐧🚀🐳⚡☸🔒-🛠️-10a8b0252" target="_blank">
   <img src=https://img.shields.io/badge/linkedin-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white alt=linkedin style="margin-bottom: 5px;" />
 </a>
 
